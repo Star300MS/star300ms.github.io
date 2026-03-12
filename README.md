@@ -1,3 +1,5 @@
+star300ms.github.io
+
 for those who need AI for everything
 But figure it's too bad for them
 
